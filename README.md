@@ -1,1 +1,1 @@
-# SI_2022_lab1_151150
+Hristijana Sindilieva 151150
